@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: +998909407250
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm 24 years old.
---> My projects
